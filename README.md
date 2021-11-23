@@ -1,4 +1,4 @@
-hi! 👋 i'm @pinchese, my name's penny, and i'm a pansexual trans girl, looking to do a bit more with life.
+hi! 👋 i'm @pinchese, my name's penelope, and i'm a pansexual trans girl, looking to do a bit more with life.
 i make music, i'm into programming, and i like games n stuff
 
 if you'd like to reach me, my email is missmozziee@gmail.com
